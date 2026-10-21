@@ -1,4 +1,4 @@
-# Assalamu alaikum, I'm Thajudeen
+# Hi, I'm Thajudeen
 
 I'm a founder and builder in Kochi, Kerala. I make software for everyday problems, and I'm working on a way to explore Islamic history that shows its evidence.
 
